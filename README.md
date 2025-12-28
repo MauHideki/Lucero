@@ -1,2 +1,0 @@
-# Lucero
-Feliz Cumpleaños Lucerito
